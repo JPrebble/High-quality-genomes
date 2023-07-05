@@ -68,3 +68,20 @@ Genomics Aotearoa research project(s): Hihi whole genome resequencing & myna gen
 Find me at: katarina.stuart@auckland.ac.nz | katarina.stuart@unsw.edu.au | https://katarinastuart.github.io/ | @Katarina_Stuart
 
 Talk to me about: population & evolutionary genomics, board games, lizards
+
+## Jessie Prebble
+
+
+Affiliation: Manaaki Whenua - Landcare Research
+
+Location: Lincoln
+
+Genomics Aotearoa research project(s):
+Reference genome assemblies and population genomics for:
+
+- rewarewa *Knightia excelsa*
+- Rātā moehau | Bartlett's rātā, *Meterosideros bartletti*
+
+Find me at: prebblej@landcareresearch.co.nz | sorry, given up social media and loving it
+
+Talk to me about: Plants! Love those slpine herbs particularly
